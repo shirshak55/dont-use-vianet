@@ -1,4 +1,4 @@
-# Vianet Nepal is shitty ISP
+# Vianet Nepal is cheater
 
 
 If you are going to purchase new subscription then please make sure its not vianet. I have subscribed vianet for 1 year. And today I got FUP message. FUP stands for fair use policy. Except vianet policy is not fair I would say this is shittest thing I have ever read.
